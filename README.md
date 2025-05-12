@@ -22,6 +22,7 @@ https://github.com/user-attachments/assets/8817d501-d3cd-48a5-a4d1-e0e564c8e849
   ✅ Trusted  
   ⚡ Fast delivery  
   🔒 Reliable security
+  https://t.me/PaypalAccessBot
 
 ---
 
